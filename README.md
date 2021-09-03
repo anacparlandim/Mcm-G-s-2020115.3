@@ -8,7 +8,7 @@ O Mcm gás é um projeto voltado principalmente para as pessoas que foram afetad
 Equipe:
 Ana Clara De Almeida Alves @anacparlandim
 Maria Eduarda Barros Costa @dudabarros
-Mell Trinas De Souza @
+Mell Trinas De Souza @melltrx
 Milena Rodrigues De Souza @Lena95
 Vinícius Martins Leite Dos Reis
 
